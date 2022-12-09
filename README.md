@@ -1,4 +1,0 @@
-# ejercicioRemoto
-- - - -
-pipipi
-- - - -
